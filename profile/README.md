@@ -29,7 +29,7 @@ The vision of QuestIT is to form a community of _students_ across the INFT Depar
 
 # Volunteer for us!
 
-If you are a part of INFT and you feel that you have something you can share with everyone, feel free to contact us and we'll provide you a platform to present your knowledge!
+If you are a part of INFT and feel that you have something to share with everyone, feel free to contact us and we'll provide you a platform to present your knowledge!
 
 # Follow Us on Social Media
 
