@@ -25,7 +25,7 @@ The vision of QuestIT is to form a community of _students_ across the INFT Depar
 # How to approach us?
 
 - Just look around, there's probably a QuestIT council member in your friends group 😉
-- To share any requests or suggestions, feel free to drop a mail to questit@ves.ac.in and we'll get back to you.
+- To share any requests or suggestions, feel free to send us a DM on Social Media or just drop a mail to questit@ves.ac.in and we'll get back to you.
 
 # Volunteer for us!
 
